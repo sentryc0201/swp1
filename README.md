@@ -1,2 +1,2 @@
 yechansong 20213016
-Kookmin Univ. SW
+Kookmin Univ. Arch
