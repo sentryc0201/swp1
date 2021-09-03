@@ -1,1 +1,2 @@
 20213016 송예찬
+Kookmin University
